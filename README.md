@@ -6,8 +6,8 @@ Señores estudiantes por este medio por favor van a realizar lo siguiente:
 
 ## INTEGRANTES DEL GRUPO
 1. Lenin Aguirre
-2. Nicole Sanchez
+2. Nicole Sánchez
 3. Doreydi Sinisterra
-4. Justine Godoy 
+4. Justinne Godoy 
 5. Lizbeth Salinas
-6. Jose Vasquez
+6. José Vásquez 
