@@ -9,5 +9,5 @@ Señores estudiantes por este medio por favor van a realizar lo siguiente:
 2. Nicole Sanchez
 3. Doreydi Sinisterra
 4. Justine Godoy 
-5. Lizbeth Rodriguez
+5. Lizbeth Salinas
 6. Jose Vasquez
